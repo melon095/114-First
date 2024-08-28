@@ -3,7 +3,7 @@
 :^)
 
 Joachim
-Windows 10
+Windows 10 Pro
 
 melon095
 
